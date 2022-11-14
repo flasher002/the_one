@@ -1,1 +1,1 @@
-# All my wothwile projects from hyperskill.org
+# All my worthwile projects from hyperskill.org
